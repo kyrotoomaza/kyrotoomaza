@@ -1,16 +1,26 @@
-## Hi there 👋
-
-<!--
-**kyrotoomaza/kyrotoomaza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- [Doraemon: Nobita's Earth Symphony - Full Hindi Dubbed Movie & More!](https://www.youtube.com/playlist?list=PLN8xKJoB1xm2uWL7AkNn0clUkBGC0vj71)
+- [Flashback February 26th, 2010: Movies, Commercials & More!](https://www.youtube.com/playlist?list=PLPd8O084Rbopvk40NT2AayBfg-cLcS-mn)
+- [Under the Mountain & More: Exploring Thrilling Mountain Adventures & Sci-Fi](https://www.youtube.com/playlist?list=PLevUlbhuX1luAaS_gv3-eLv14ne5rH6WA)
+- [Podia Ter Esperado Por Agosto (2024): Trailer, Entrevistas e Mais!](https://www.youtube.com/playlist?list=PL3Q4yTdT91azJPOplik3uek2EhU0BbEG2)
+- [2010 Movie Throwback: May 11th Releases & More!](https://www.youtube.com/playlist?list=PLj8aRy_HPR_YJeW3ag-AToM47hEMzu-5n)
+- [La Dernière Danse: The Ultimate Playlist - 2024 Movie & Music Remixes](https://www.youtube.com/playlist?list=PLiuTPcUHXh96CswVY_0hC_0-Y9HTpXEkO)
+- [Ultimate Nobita the Movie Marathon: Every Adventure!](https://www.youtube.com/playlist?list=PLUrVOq2axMbqNUEoj_oxmRWMf5KCffuCS)
+- [Is Nobita a Vampire? Doraemon's Spooky Adventures!](https://www.youtube.com/playlist?list=PLQKMDm74kMfWrazje4o2WDAoQAL0BHIcK)
+- [I Love You Phillip Morris: The Ultimate Fan Playlist](https://www.youtube.com/playlist?list=PLbMpUVoTF9xyggOhQeCTTZgVNhX76Gk0_)
+- [মিজানুর রহমান আজহারী ওয়াজ: নবীদের জীবনী ও ইসলামী প্রেরণা](https://www.youtube.com/playlist?list=PLC9R1rLFJvcZnQpuoPTK0umzHpHsftT25)
+- [Tom & Jerry Meet Sherlock Holmes: The Complete 2010 Animated Adventure!](https://www.youtube.com/playlist?list=PL9zEsHn4PfURgefX6QpnvLp4N0PHA8QAA)
+- [Doraemon & Nobita's Moon Adventure: The Complete Guide!](https://www.youtube.com/playlist?list=PLy4rYi3WF7zSlOHDSt-o0lCAeK6A-dMEB)
+- [Ace Your 10th English Exam: Nobita's Guide to Success!](https://www.youtube.com/playlist?list=PLy4rYi3WF7zSvt3uPSYGL4c-Sqolsq5U4)
+- [Jane Fonda's Prime Time Workout: Full 80s Aerobics Retro Fitness Blast!](https://www.youtube.com/playlist?list=PL8olEd8v_Jk9hjja92tG042XnSEVL5qtW)
+- [Is Liverpool Match on Amazon Prime Today? 🔴 All Things Liverpool FC!](https://www.youtube.com/playlist?list=PL1YqYBs_-b752kPnhkaAYjTPFm7Khjx_h)
+- [Save Nobita's Dreams: Best Doraemon Episodes!](https://www.youtube.com/playlist?list=PLEoB85L0xBPTPQEFbI3c7sB2zJYCKFtGA)
+- [Is Ninjago Season 12 on Netflix? The Ultimate Guide!](https://www.youtube.com/playlist?list=PLQP13DWLUxtUz1mXKUXQDMVfq-6WqX0aG)
+- [Dive Deep into The Witcher: Sirens of the Deep (2025) - Official Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLvaMqgvQgbYNcfDGB3t85fBEwMEdvQq8Q)
+- [Nobita's Wild West Adventures: Cowboy Nobita Episodes & More!](https://www.youtube.com/playlist?list=PL3Q4yTdT91axlf8wYAHKLgIT77Gbshhuv)
+- [🔥 Best of 2024 Movies: MariMari & More! 🔥](https://www.youtube.com/playlist?list=PLMT0v3dKR6AxFcIrY8AU0DZlDTir2UM14)
+- [2024 Movie Mania: Action, Horror, & More!](https://www.youtube.com/playlist?list=PLPd8O084RbopY4TvRJTXZK2JDNM0fkmjJ)
+- [Doraemon's Epic Adventures: Nobita and the Green Giant Legend & More!](https://www.youtube.com/playlist?list=PLgQg6-RFObZeAeK_KJtYKaR6RlPiFFrrJ)
+- [Camping du Lac 2024 Movie: Official Trailer, Interviews & More!](https://www.youtube.com/playlist?list=PL1YqYBs_-b76NrPz8efdgTy_e-ABpjNah)
+- [Wall Street: Money Never Sleeps (2010) - The Complete Guide](https://www.youtube.com/playlist?list=PLaxWmWH_41unmHATa3P46VibEIveGT1d-)
+- [Blast from the Past: March 9th, 2010 Movie Mania!](https://www.youtube.com/playlist?list=PL67i4ZwicJLNKsPGqRtcogJiU-jMUK-M4)
+- [Flashback to October 26, 2011: Movies, News & More!](https://www.youtube.com/playlist?list=PL4315PFPI_0lgz66FBhaYy3YJjTtI58-X)
